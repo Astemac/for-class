@@ -69,3 +69,25 @@ Battlefield Hardline - Nikhil
 GTA 5 - Nikhil
 Sleeping Dogs - Nikhil
 Narcos - Nikhil
+
+NFSMW - Aditya
+GTA 5 - Aditya
+PoPSoT - Aditya
+Halo - Aditya
+Prototype - Aditya
+Movies - Aditya
+Blogging - Aditya
+Drawing - Aditya
+Youtube - Aditya
+Travel - Aditya
+Sleeping Dogs - Aditya
+IGI - Aditya
+Thinking - Aditya
+Web Development - Aditya
+Netflix - Aditya
+Reading Books - Aditya
+Cricket - Aditya
+Banged Up Abroad - Aditya
+Making Comics - Aditya
+Asphalt8 - Aditya
+Music - Aditya
